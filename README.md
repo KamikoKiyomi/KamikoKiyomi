@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KamikoKiyomi
+- 👀 I’m interested in ... Web Dev, Game Development, 3D Modeling, Graphic Design
